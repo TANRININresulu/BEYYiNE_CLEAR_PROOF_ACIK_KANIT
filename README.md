@@ -1,1 +1,1 @@
-# TANIK OLMAK İÇİN:
+# Tanık Olmak İçin :

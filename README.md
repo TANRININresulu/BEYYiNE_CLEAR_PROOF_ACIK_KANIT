@@ -6,3 +6,5 @@ Sonuçları Karşılaştırın
 Ve Sayfa 9'u Dikkatle([9:12](https://FurkanHikmet.com/9#12)) Okuyun! Ve [43:61](https://OnurluKURAN.com/43#61) Ayeti'ni ve [KıyametSaati.com](http://KıyametSaati.com) 'un Miladi Senesi'ni [Anımsayın](http://KıyametSaati.com)!
 
 ![AÇIK KANIT / CLEAR PROOF / BEYYİNE](./Proof_Resurrection_<25mb.png)
+
+[Nineteen: The Divine Code - Song](https://www.youtube.com/watch?v=FCN8sHTF03A)
